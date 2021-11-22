@@ -1,1 +1,0 @@
-# Methods_of_collecting_and_processing
